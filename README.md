@@ -25,9 +25,9 @@
 
 
 
+![man idk](https://github.com/user-attachments/assets/24febdee-73d6-44bd-b194-2f999861498f)
 
 
-![0782b3ebcf7f552fa67907485f560ebc](https://github.com/user-attachments/assets/754ddadc-e373-47de-a208-09869e791c2e)
 
 
 *❝ 𝔜𝔬𝔲𝔯 𝔩𝔬𝔳𝔢'𝔰 𝔩𝔦𝔨𝔢 𝔯𝔥𝔦𝔫𝔢𝔰𝔱𝔬𝔫𝔢𝔰 𝔣𝔞𝔩𝔩𝔦𝔫𝔤 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔰𝔨𝔶. ❞* ![F42-D92-E9-7-A75-4274-8-F0-F-656-AEE97-A652](https://github.com/user-attachments/assets/394d0c0a-d98e-46ec-8029-44f52555133b)
